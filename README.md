@@ -1,5 +1,5 @@
 # Neutrinos
-first thoughts
+Some thoughts...
 
 Strawberry shake, BLT, Lindt - 
 Mozart, Verdi, Liszt, Rahmanyinov - 
